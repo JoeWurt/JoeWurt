@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @JoeWurt
+- 👀 I’m interested in time travel.
+- 🌱 I’m currently learning political science.
+- 💞️ I’m looking to collaborate to make money.
+- 📫 How to reach me 501-459-0697
